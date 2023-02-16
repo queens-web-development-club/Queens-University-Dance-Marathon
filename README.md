@@ -1,1 +1,1 @@
-# Queen-s-University-Dance-Marathon
+# Queens-University-Dance-Marathon
